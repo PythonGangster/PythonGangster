@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PythonGangste
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on contact me
+- 📫 How to reach me discord: BigManTing#0682
